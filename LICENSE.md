@@ -1,4 +1,4 @@
-# 
+# Enhance WinRAR for PC | WinRAR for Windows with exclusive WinRAR for PC | WinRAR for Windows Module | batch-processing + solid-archives, the #1 module. Includes batch-processing
 
 
 
